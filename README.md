@@ -32,7 +32,7 @@ Software Development • Full-Stack Development • AI/ML • Data Analytics •
 ### 📫 Connect With Me
 
 * GitHub: [github.com/anshi102004](https://github.com/anshi102004)
-* LinkedIn:(https://www.linkedin.com/in/anshi-sharma-8986753aa?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+* LinkedIn:((https://www.linkedin.com/in/anshi-sharma-8986753aa))
 
 ---
 
